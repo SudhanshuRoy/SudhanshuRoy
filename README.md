@@ -14,9 +14,9 @@
 
 - 📫 How to reach me **shudhanshukumarmuz@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1zsRI56uWqrm_HInxlt2EWKC4QqKya42c/view?usp=sharing](https://drive.google.com/file/d/1zsRI56uWqrm_HInxlt2EWKC4QqKya42c/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1dU4jvqh0Zvn3iBb3JwpcKfjomnLJKgDF/view?usp=drive_link](https://drive.google.com/file/d/1dU4jvqh0Zvn3iBb3JwpcKfjomnLJKgDF/view?usp=drive_link)
 
-- 📫 All my works **sudhanshuroy.github.io/**
+- 📫 All my works  [sudhanshuroy.github.io/](sudhanshuroy.github.io/)
 
 <h3 align="center">Connect with me:</h3>
 <p align="center">
