@@ -16,7 +16,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1LU8MxFx1LAA2E4fEuiCY8z_nFExL2u3w/view?usp=drive_link](https://drive.google.com/file/d/1LU8MxFx1LAA2E4fEuiCY8z_nFExL2u3w/view?usp=drive_link)
 
-- 📫 my works **SudhanshuRoy.github.io/**
+- 📫 my works **https://sudhanshuroy.github.io/**
 
 <h3 align="center">Connect with me:</h3>
 <p align="center">
